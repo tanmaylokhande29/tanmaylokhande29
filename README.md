@@ -11,8 +11,7 @@ I’m currently expanding my skills in Web Developement . Always eager to learn 
 
 ## 📫 How to Reach Me
 - Email: tanmaylokhande2964@gmail.com
-- LinkedIn: [your LinkedIn profile]
-- Twitter: [your Twitter handle]
+
 
 
 
